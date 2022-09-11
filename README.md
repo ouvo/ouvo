@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ouvo
+- 👀 I’m interested in Self-development
+- 🌱 I’m currently learning computer
+- 💞️ I’m looking to collaborate on global companies
+- 📫 How to reach me The dream and your ambition 
+- 
